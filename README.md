@@ -6,3 +6,5 @@
 - 📧 You can reach me by email at michael.delagrave.viau@gmail.com
 - 😄 Fun fact: I love animals, Scuba Diving and Photography 
 
+
+### Ask, Believe and Receive is my religion ! 
